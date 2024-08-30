@@ -6,5 +6,7 @@ Meu nome é Asheley Lohane
 - faço por nota na media
 
 Entre em contato comigo 
-@ash.lohae
+@ash.lohane
 
+
+![image](https://github.com/user-attachments/assets/011f41c0-dbbe-4b9b-a0e1-0110d55da446)
